@@ -1,0 +1,1 @@
+You lead off the boat, and muscle memory seems to guide you as you tuck into a perfect dive, were you perhaps an olympic diver before this? You will not be able to find out, because as you are sailing through the air, an enormous shark leaps out of the water and swallows you.

@@ -1,0 +1,1 @@
+Walking towards the forest, an arrow breezes past your neck with a "Thwip!" and you hear a "Thud!" behind you. You turn, and Captain Yachty is holding the arrow ... lodged in his chest. He falls to his knees, and with his last breath he says "It's time for Lil Boat to sail off to his next life"

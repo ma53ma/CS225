@@ -1,0 +1,1 @@
+You kill a few hours listening to Lil Yachty detail the arc of his discography until a little old man hobbles out from the hut and says "oh, hello there, you must be Grognak, I have your fatality potion waiting right here".

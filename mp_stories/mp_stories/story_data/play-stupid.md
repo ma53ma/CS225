@@ -1,0 +1,1 @@
+The man is taken aback by your oddly philosophical question, and responds with: "I wake up every day asking myself that question. I'm tired of being a sailor, my passion is in graphic design, if I let you on land, will you help me realize my life goals?"
